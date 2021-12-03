@@ -1,0 +1,2 @@
+# Abduraxim-Jabborov
+Shogird mahorati
